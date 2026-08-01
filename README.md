@@ -110,6 +110,6 @@ AI 大模型 / Agent / LLM 高端岗位招聘 20260326
 ---
 
 # 联系方式
-简历投递邮箱：nickforos@shawnwaytalent.com**
+简历投递邮箱：sapfree8732@hotmail.com
 
 邮件主题备注：**姓名 + 应聘职位**
